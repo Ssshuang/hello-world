@@ -1,2 +1,3 @@
 # hello-world
-new life from Christmas 2017
+New life from Christmas 2017 ~
+Keep calm & carry on!
