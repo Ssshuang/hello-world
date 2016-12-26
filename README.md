@@ -1,3 +1,4 @@
 # hello-world
-New life from Christmas 2017 ~
-Keep calm & carry on!
+New life from Christmas 2017 ~ /n
+Keep calm & carry on! /n
+Shuang
